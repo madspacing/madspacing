@@ -10,7 +10,6 @@ $\text{\color{#875b28} tripmie ᵒʳ vague⠀━⠀18⠀ˢʰᵉ〳ₕₑ }$\
 $\text{\color{#875b28}physment ill⠀﹋⠀ns madkit yume}$\
 $\text{\color{#875b28}c+h welcome , w2i always pls}$\
 $\text{\color{#875b28}ac - mongrellic + sillycrepes}$
-
 \
 [ⅰ](https://rentry.co/wipd) [ⅱ](https://rentry.co/wipd) [ⅲ](https://rentry.co/wipd)
 
