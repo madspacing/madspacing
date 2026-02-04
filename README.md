@@ -6,7 +6,7 @@
 
    ![](https://file.garden/aW26Bw2LYQfOzvvc/Untitled9_20260201164453.png)
 
-$\text{\color{#875b28} tripmie ᵒʳ vague⠀━⠀18⠀ˢʰᵉ〳ₕₑ }$\
+$\text{\color{#875b28} tripmie ᵒʳ vague⠀━⠀18⠀ˢʰᵉ〳ₕₑᵣ }$\
 $\text{\color{#875b28}physment ill⠀﹋⠀ns madkit yume}$\
 $\text{\color{#875b28}c+h welcome , w2i always pls}$\
 $\text{\color{#875b28}ac - mongrellic + sillycrepes}$
